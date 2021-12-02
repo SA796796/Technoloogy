@@ -1,1 +1,1 @@
-# Technoloogy
+# Technology
